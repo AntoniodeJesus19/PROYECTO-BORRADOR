@@ -238,4 +238,4 @@ else
 ![](https://github.com/AntoniodeJesus19/PROYECTO-BORRADOR/blob/main/Captura%20de%20pantalla%202024-12-15%20165015.png?raw=true)
 ![](https://github.com/AntoniodeJesus19/PROYECTO-BORRADOR/blob/main/Captura%20de%20pantalla%202024-12-15%20165037.png?raw=true)
 ![](https://github.com/AntoniodeJesus19/PROYECTO-BORRADOR/blob/main/Captura%20de%20pantalla%202024-12-15%20165056.png?raw=true)
-![]()
+![](https://github.com/AntoniodeJesus19/PROYECTO-BORRADOR/blob/main/Captura%20de%20pantalla%202024-12-15%20165555.png?raw=true)
